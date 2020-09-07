@@ -1,0 +1,2 @@
+# Jenis-Segitiga
+Matematika
